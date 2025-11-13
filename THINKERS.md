@@ -442,7 +442,6 @@ Thinker of power, identity, and hidden structures.
 ### **Muhammad ibn Abdullah**
 
 Reformer, unifier, and voice of justice.
-“لا يؤمن أحدكم حتى يحب لأخيه ما يحب لنفسه”
 *“None of you truly believes until he loves for his brother what he loves for himself.”*
 
 ---
