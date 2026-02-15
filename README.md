@@ -4,7 +4,7 @@
 
 This project is open to everyone.
 
-Because the Planet Earth Constitution is released under **CC0 (Public Domain)**, you are free to:
+Because the Globalp Constitution is released under **CC0 (Public Domain)**, you are free to:
 
 - improve the text  
 - fix errors or structure  
@@ -24,37 +24,10 @@ All contributions — large or small — are welcome.
 ### 🌍 Guiding Principle
 
 **Improve the world by improving the words.**  
-Every better sentence becomes a better future.
+Every better sentence can help build a better future.
 
-# Kids of Hope — A Call to the Next Generations
+# Want a better life? Create it, even a tiny improvement is very important because 1. we are outcome focused and when we see the outcome we are encouraged to continue 2. we enjoy ourselves when we see a good outcome from our deed and joy is something some spend millions to have and we can have it dirt cheap. In my own experience the cost of the activity has much impact on the amount of joy I get but my mood, the people around me, how much I love an activity such as playing Basketball 🏀 decides the amount of joy.
 
-To the kids of hope…
-
-You who feel everything.  
-You who care too much.  
-You who want the world to be softer, kinder, and cleaner.
-
-Listen:
-
-You’re not too small to change the planet.  
-Kindness is rebellion.  
-Honesty is revolution.  
-Your courage reshapes tomorrow.
-
-Protect the forests — they protect your lungs.  
-Protect the oceans — they carry your future.  
-Protect the animals — they mirror your innocence.  
-Protect each other — you are one human family.
-
-Hope isn’t a feeling — it’s a muscle.  
-Every time you use it, the Earth breathes easier.
-
-Stand tall.  
-Stand gentle.  
-Stand true.
-
-You are the kids of hope —  
-the ones the future has been waiting for.
 
 
 #  **Founding Fathers Tribute**
